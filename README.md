@@ -57,7 +57,7 @@ Hasil analisis data menunjukkan pola-pola menarik, di antaranya:
 
 Jika Anda memiliki pertanyaan, saran, atau ingin berdiskusi lebih lanjut, jangan ragu untuk menghubungi saya:
 
-🔗 [LinkedIn]
+🔗 LinkedIn: https://www.linkedin.com/posts/dimas-faza-julian-putra-9b3509333_explanatory-data-analysis-titanic-activity-7319951754261860352-Yn3P?utm_source=share&utm_medium=member_android&rcm=ACoAAFPnLlcBtNJnMP2GkU_y5irVqM4ulW-7gK4
 
 ---
 
